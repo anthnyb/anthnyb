@@ -4,5 +4,5 @@
 
 💼 Currently leading full stack and data engineering projects at Clear Sky Capital. 
 
-📫 Reachable at anthony.benites17@gmail.com
+📫 Reach me at anthony.benites17@gmail.com
 
