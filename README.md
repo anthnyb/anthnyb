@@ -4,5 +4,5 @@
 
 💼 Currently leading data projects at Clear Sky Capital. 
 
-📫 Reach me at anthony.benites17@gmail.com
+📫 Reachable at anthony.benites17@gmail.com
 
