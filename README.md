@@ -1,6 +1,6 @@
 # Hey!👋 
 
-🧑‍💻 My name's Anthony Benites, I'm a senior data engineer at Capital One. 
+🧑‍💻 My name's Anthony Benites, I'm a Senior Data Engineer at Capital One. 
 
 🏜️ Currently in Phoenix, AZ. 
 
